@@ -10,4 +10,4 @@
 
 
 
-[링크 입니다.](https://www.daum.net/)
+[링크 입니다.](https://www.idailynews.co.kr/data/photos/20201253/art_16093756009115_c566e0.jpg)
