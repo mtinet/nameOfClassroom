@@ -10,4 +10,4 @@
 
 
 
-[링크 입니다.](https://youtu.be/iTrPeyDrfMQ)
+![링크 입니다.](https://i.ytimg.com/vi/toB5pJoe4Oo/maxresdefault.jpg)
